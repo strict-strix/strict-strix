@@ -11,6 +11,7 @@ int: inverstion duo, tax duo, blindfold brothers duo and many more depending on 
 
 dni: boundary breakers, tfc, homophobes, transphobes, if I have dni in my name. 
 
+I AM A MINOR. 
 
 #DailyBoosferWatcher
 
