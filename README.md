@@ -7,6 +7,9 @@ names:Strix, usher or any pony that I'm using.
 
 int: inverstion duo, tax duo, blindfold brothers duo and many more depending on the pony I'm using! 
 
-dni: boundary breakers, tfc, homophobes, transphobes, if I have dni in my name.
+dni: boundary breakers, tfc, homophobes, transphobes, if I have dni in my name. 
+
+
+#DailyBoosferWatcher
 
   <img src="boosfer-my-brain-is-still-rotting.gif" width="200">
