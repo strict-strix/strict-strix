@@ -1,3 +1,5 @@
+<img src="banner.gif" width="200">
+
 Hello! here's some stuff you can read before interacting with me ig? 
 
 names:Strix, usher or any pony that I'm using. 
