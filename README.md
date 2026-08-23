@@ -1,4 +1,4 @@
-<img src="banner.gif" width="200">
+<img src="banner.gif" width="300">
 
 Hello! here's some stuff you can read before interacting with me ig? 
 
