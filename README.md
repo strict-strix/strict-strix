@@ -4,7 +4,7 @@ Hello! here's some stuff you can read before interacting with me ig?
 
 names:Strix, usher or any pony that I'm using. 
 
-⚡︎                         <img src="green-heart.gif" width="50">                             
+⚡︎                        .    <img src="green-heart.gif" width="50">                             
 
 
 int: inverstion duo, tax duo, blindfold brothers duo and many more depending on the pony I'm using! 
